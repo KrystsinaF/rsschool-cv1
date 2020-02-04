@@ -1,5 +1,5 @@
 
-# Krystsina Fiadoryna#
+# Krystsina Fiadoryna
 1. Contact Info:
 krystsin32@gmail.com
 
