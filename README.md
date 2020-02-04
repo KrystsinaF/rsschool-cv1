@@ -10,6 +10,7 @@ Selfeducation is a good way for me to spend my free time.
 5. Experience : HTML Academy
 6. Education:
 + MSLU(Minsk)
+
 + UX/UI designer(Geekbrains)
 7. English B2
 
